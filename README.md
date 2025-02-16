@@ -1,0 +1,7 @@
+- Hi, I’m @Gengame810
+- doing youtube n stuff
+- making games for the first time
+- idk what to say here
+- i'm a he/him i guess :/
+- blah blah blah
+- ...
